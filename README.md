@@ -2,4 +2,4 @@
 
 - ♂  Nomen ego Vladislav!
 - 👀 I’m interested in modding, web and desktop development
-- 📫 How to reach me https://vk.com/v27_10_2001
+- 📫 How to reach me: [VK](https://vk.com/v27_10_2001)
